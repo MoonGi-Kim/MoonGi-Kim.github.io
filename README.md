@@ -1,1 +1,1 @@
-My portfolio is changed
+My portfolio is changed.
